@@ -5,7 +5,7 @@
 
 - <h2>Energize:</h2> <h6>your ideas sounds interesting and fullfilling to others, they will want to work with you to accomplish it.</h6>
 
-- <h2>Eage:</h2> <h6>say yes or no to all the distractions, not maybe.</h6>
+- <h2>Eage:</h2> <h6>say yes or no to all the decisions & distractions, not maybe.</h6>
 
 - <h2>Execute:</h2> <h6>use your foundation of knowledge to do things that you can apply what you have learnt into a profitable product.</h6>
 
