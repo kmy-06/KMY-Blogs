@@ -1,4 +1,4 @@
-<h1>Leadership: 4E1P</h1>
+<h1>Leadership: 4E1P 🤍</h1>
 
 
 - <h2>Energy:</h2> at least 12 hours of learning on days you're free, know what you are doing.
