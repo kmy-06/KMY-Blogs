@@ -4,7 +4,7 @@
 
 At the start, there is no meaning. As our life progresses & our experiences grow, we will eventually know a lot and understand what 'life' is.
 
-<h2>The golden word is:</h2>
+<h2>The right word is:</h2>
 
 All-in! (in the participation of 'life', for the wonderful experiences)
 
