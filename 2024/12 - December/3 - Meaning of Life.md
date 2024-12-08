@@ -2,7 +2,7 @@
 
 <h2>The answer is:</h2>
 
-At the start, there is no meaning. As our life progresses & our experiences grow, we will eventually know a lot and understand what 'life' is.
+At the start, there is no meaning. As our life progresses & our experiences grow, we will eventually know a lot and <b>understand</b> what 'life' is.
 
 <h2>The right word is:</h2>
 
