@@ -6,7 +6,7 @@ At the start, there is no meaning. As our life progresses & our experiences grow
 
 <h2>The right word is:</h2>
 
-All-in! (in the participation of 'life', for the wonderful experiences)
+All-in! ( -> in the participation of 'life', for the wonderful experiences)
 
 
 <h2>The golden quote is:</h2>
